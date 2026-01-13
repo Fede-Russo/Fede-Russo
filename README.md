@@ -1,7 +1,1 @@
 - 👋 Hi, I’m @Fede-Russo
-- 👀 I’m interested in pippoli  
-- 🌱 I’m currently learning life
-- 💞️ I’m looking to collaborate on
-- 📫 How to reach me, you ca't
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
